@@ -18,7 +18,7 @@
 * [项目管理（MBA精品）](http://m.zhangyue.com/readbook/10863394/1?p2=116298&share=1) <br/>
 * [设计模式之禅](
 http://m.zhangyue.com/readbook/10164381/1?p2=116298&share=1) <br/>
-* [玩转榨汁机(让你变美变瘦变健康)](http://m.zhangyue.com/readbook/11518020/1?p2=116298&share=1 ) <br/>
+* [玩转榨汁](http://m.zhangyue.com/readbook/11518020/1?p2=116298&share=1 ) <br/>
 * [你的善良必须有点锋芒](http://m.zhangyue.com/readbook/11484754/1?p2=116298&share=1)<br/>
 * [谁在操作你](http://m.zhangyue.com/readbook/11276659/1?p2=116298&share=1)
 * [同理心](http://m.zhangyue.com/readbook/11596614/1?p2=116298&share=1) <br/>
